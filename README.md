@@ -1,2 +1,2 @@
 # hello
-for me
+Hi humans , i'am here / i'am fine/ ty.
